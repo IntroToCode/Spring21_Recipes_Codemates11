@@ -52,4 +52,57 @@ Sauté the rice for another minute, then add in the peas, scrambled eggs and sli
 
 Wait 5 minutes before serving
 
+Also adding the BBQ pork recipe:
+
+Ingredients
+for 6 servings
+
+2 cups water
+RUB
+
+½ cup soy sauce
+½ cup dark brown sugar, packed
+3 tablespoons smoked paprika
+2 teaspoons salt
+2 teaspoons black pepper
+1 teaspoon cayenne powder
+1 teaspoon ground allspice
+1 teaspoon powdered ginger
+1 ½ teaspoons garlic powder
+4 sprigs fresh thyme
+1 lemon, zested
+2 slabs pork rib
+SAUCE
+
+1 tablespoon canola oil
+1 poblano chile, chopped
+1 red onion, chopped
+2 cloves garlic, chopped
+1 ginger, 1-inch (2 1/2 cm) peeled and chopped
+salt, to taste
+1 ¼ cups chicken broth
+1 cup ketchup
+12 fl oz beer, 1 bottle
+½ cup coffee
+⅓ cup apple cider vinegar
+¼ cup brown sugar
+¼ cup soy sauce
+1 lemon, juiced
+
+Preparation
+Whisk together all the rub ingredients in a small bowl.
+Spread the rub evenly over the pork ribs and place on a wire rack set over a baking sheet with meat side up. Cover with plastic wrap and refrigerate overnight.
+For the BBQ sauce, heat oil in a large pot or dutch oven over medium-high heat. Add poblano chile, red onion, garlic, ginger, and a pinch of salt, then cook until onions begin to soften.
+Add the remaining sauce ingredients and bring the mixture to a simmer.
+Turn the heat down to medium-low and cook at an active simmer until the mixture is reduced to about 2 cups (470 ml), about 30-45 minutes.
+Once reduced, cool slightly then transfer mixture to a blender. Puree until smooth.
+Preheat oven to 275˚F (140˚C).
+Uncover the ribs. Spread 1 cup (290g) of the BBQ sauce over each rack of ribs.
+Keeping them raised over the baking sheet on the wire rack. Pour water into the bottom of the baking sheet.
+Bake in a preheated oven for 3-3 ½ hours.
+Remove ribs from oven and preheat the broiler to high.
+Broil the ribs for 5-10 minutes to finish, until the sauce caramelizes.
+Cut into individual ribs.
+Enjoy!
+
 ### Codemates # Ali Cailin Georgia Felipe
