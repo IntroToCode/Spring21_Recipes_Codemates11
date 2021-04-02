@@ -36,6 +36,8 @@ If you don't like bananas, Try those recipes:
 1- Subbing in 1/2 cup additional plain Greek yogurt (to add creaminess), plus 1 tablespoon additional sweetener and a handful of ice cubes in place of the frozen banana in these recipes.
 2- Other options: canned pineapple, sweetened yogurt, canned pears. Adding half a ripe avocado can really help make up for the creaminess that bananas usually add, too. 
 
+Be sure to wash out the blender immediately after making your smoothie for easier cleaning.
+
 ### Codemates #
 Ali
 Cailin
