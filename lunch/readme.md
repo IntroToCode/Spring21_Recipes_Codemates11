@@ -28,7 +28,9 @@ Kosher salt
 ## Equipment needed: nonstick skillet or wok
 
 
-## Steps for preparation: In a small bowl, combine the soy sauce, sesame oil, mirin, rice vinegar, hoisin and gochujang until well combined.
+## Steps for preparation: 
+
+In a small bowl, combine the soy sauce, sesame oil, mirin, rice vinegar, hoisin and gochujang until well combined.
 
 In a large nonstick skillet or wok, heat 1 tablespoon vegetable oil over medium heat. Season eggs with kosher salt, to taste. Once the oil is hot, add in the eggs. Cook, folding and stirring constantly, until fully scrambled. Break into small pieces with a spatula and transfer to a small plate.
 
