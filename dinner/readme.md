@@ -1,7 +1,7 @@
 # Balsalmic Chicken Sheetpan Supper
 
 ## Servings: 
-4 Servings
+4 - 5 Servings
 
 ## Time to prepare: 
 1 Hour (15 minutes prep; 45 minutes cook time)
