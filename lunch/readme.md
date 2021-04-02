@@ -1,8 +1,10 @@
 # Marcus Samuelsson's Pork Rib Fried Rice
 
-## Servings: 4-6 servings
+## Servings: 
+4-6 servings
 
-## Time to prepare: 20 minutes
+## Time to prepare: 
+20 minutes
 
 ## Ingredients:
 
