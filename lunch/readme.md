@@ -46,6 +46,6 @@ Sauté the rice for another minute, then add in the peas, scrambled eggs and sli
 
 ### Notes:
 
-Recommendation: Wait 5 minutes before start eating
+Recommendation: Wait 5 minutes before start eating, and allot 30 minutes after to digest before going back to work.
 
 ### Codemates # Ali Cailin Georgia Felipe
