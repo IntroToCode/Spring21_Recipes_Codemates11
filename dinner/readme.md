@@ -38,5 +38,7 @@ Fine sea salt and freshly ground pepper
 The supper is best served straight from the oven, but leftovers are good for a couple of days; cover and refrigerate. If you’ve got a few potatoes left over, cut them into cubes and toss them into a salad.
 You can use bone in breasts if you would like to use chicken breast. 
 
+Be sure to allot 20 minutes as buffer time in case the chicken takes a bit longer to cook. 
+
 ### Codemates #
 Ali Carley, Felipe Covarrubias, Georgia Wright-Simmons and Tai Wu
