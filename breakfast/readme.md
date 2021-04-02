@@ -1,7 +1,7 @@
 # Smoothie
 
 ## Servings: 
-1 smoothie
+1 serving 
 
 ## Time to prepare: 
 5 minutes
@@ -20,7 +20,7 @@ Optionals Add-ins
 * Sweetener, to taste (honey, maple syrup, stevia)
 
 ## Equipment needed:
-Blender
+1 Blender
 
 ## Steps for preparation:
 1- Add unsweetened dairy or non-dairy milk (almond milk)
