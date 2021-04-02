@@ -4,7 +4,7 @@
 4 Servings
 
 ## Time to prepare: 
-1 Hour
+1 Hour (15 minutes prep; 45 minutes cook time)
 
 ## Ingredients:
 1.5 pounds (680 grams) small potatoes, scrubbed and halved if large, 
