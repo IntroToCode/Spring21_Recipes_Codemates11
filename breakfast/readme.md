@@ -1,7 +1,7 @@
 # Smoothie
 
 ## Servings: 
-1 smoothie
+1 - 2 servings 
 
 ## Time to prepare: 
 5 minutes
@@ -20,7 +20,7 @@ Optionals Add-ins
 * Sweetener, to taste (honey, maple syrup, stevia)
 
 ## Equipment needed:
-Blender
+1 Blender
 
 ## Steps for preparation:
 1- Add unsweetened dairy or non-dairy milk (almond milk)
@@ -37,6 +37,8 @@ If you don't like bananas, try these substitutions:
 2- Other options: canned pineapple, sweetened yogurt, canned pears. Adding half a ripe avocado can really help make up for the creaminess that bananas usually add, too. 
 
 Be sure to wash out the blender immediately after making your smoothie for easier cleaning.
+
+Take 10 minutes to rest after this great breakfast. 
 
 ### Codemates #
 Ali
