@@ -1,7 +1,7 @@
 # Smoothie
 
 ## Servings: 
-1 - 2 serving 
+1 - 2 servings 
 
 ## Time to prepare: 
 5 minutes
