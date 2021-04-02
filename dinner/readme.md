@@ -7,20 +7,20 @@
 1 Hour
 
 ## Ingredients:
--1.5 pounds (680 grams) small potatoes, scrubbed and halved if large, 
--1⁄2 pound (226 grams) white mushrooms, wiped clean, trimmed and cut in half if large
--1 large shallot or medium onion, cut into 8 wedges, rinsed and patted dry
--4 garlic cloves, unpeeled
--8 sprigs fresh rosemary8 sprigs fresh thyme
--Fine sea salt and freshly ground pepper
--6 tablespoons (90 ml) extra-virgin olive oil 
--4 tablespoons balsamic vinegar
--4 whole chicken legs (thigh and drumstick), patted dry
+1.5 pounds (680 grams) small potatoes, scrubbed and halved if large, 
+1⁄2 pound (226 grams) white mushrooms, wiped clean, trimmed and cut in half if large
+1 large shallot or medium onion, cut into 8 wedges, rinsed and patted dry
+4 garlic cloves, unpeeled
+8 sprigs fresh rosemary8 sprigs fresh thyme
+Fine sea salt and freshly ground pepper
+6 tablespoons (90 ml) extra-virgin olive oil 
+4 tablespoons balsamic vinegar
+4 whole chicken legs (thigh and drumstick), patted dry
 
 ## Equipment needed:
--1 oven, one sheetpan or roasting pan,
--1 large bowl
--1 meat thermometer 
+1 oven, one sheetpan or roasting pan,
+1 large bowl
+1 meat thermometer 
 
 ## Steps for preparation:
 1. Put the potatoes, mushrooms, shallot or onion and garlic in a large bowl. 
