@@ -4,7 +4,7 @@
 4-6 servings
 
 ## Time to prepare: 
-20 minutes
+20 minutes - 30 minutes
 
 ## Ingredients:
 
