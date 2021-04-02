@@ -38,6 +38,8 @@ If you don't like bananas, try these substitutions:
 
 Be sure to wash out the blender immediately after making your smoothie for easier cleaning.
 
+Take 10 minutes to rest after this great breakfast. 
+
 ### Codemates #
 Ali
 Cailin
