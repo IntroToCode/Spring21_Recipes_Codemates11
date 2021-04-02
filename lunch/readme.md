@@ -1,31 +1,35 @@
 # Marcus Samuelsson's Pork Rib Fried Rice
 
-## Servings: 4-6 servings
+## Servings: 
+4-6 servings
 
-## Time to prepare: 20 minutes
+## Time to prepare: 
+20 minutes
 
 ## Ingredients:
 
-2 tablespoons soy sauce
-1 tablespoon sesame oil
-2 tablespoons mirin
-1 tablespoon rice vinegar
-2 tablespoons hoisin
-1 tablespoon gochujang
-1/4 cup vegetable oil, divided
-2 eggs, whisked
-Kosher salt
-1 medium red onion, diced
-2 tablespoons minced ginger
-2 cloves garlic, minced
-2 carrots, peeled and finely diced
-1½ cups leftover Barbecue Pork Ribs, cubed (recipe linked above)
-4 cups cooked, day-old short grain rice
-1 cup frozen peas, thawed
-1/2 cup sliced scallions
++2 tablespoons soy sauce
++1 tablespoon sesame oil
++2 tablespoons mirin
++1 tablespoon rice vinegar
++2 tablespoons hoisin
++1 tablespoon gochujang
++1/4 cup vegetable oil, divided
++2 eggs, whisked
++Kosher salt
++1 medium red onion, diced
++2 tablespoons minced ginger
++2 cloves garlic, minced
++2 carrots, peeled and finely diced
++1½ cups leftover Barbecue Pork Ribs, cubed (recipe linked above)
++4 cups cooked, day-old short grain rice
++1 cup frozen peas, thawed
++1/2 cup sliced scallions
 
 
-## Equipment needed: nonstick skillet or wok
+## Equipment needed: 
++Nonstick skillet or wok
++Tongs 
 
 
 ## Steps for preparation: 
