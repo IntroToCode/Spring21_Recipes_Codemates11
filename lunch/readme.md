@@ -6,6 +6,10 @@
 ## Time to prepare: 
 20 minutes - 30 minutes
 
+## Equipment needed: 
+* Nonstick skillet or wok
+* Tongs 
+
 ## Ingredients:
 
 * 2 tablespoons soy sauce
@@ -25,12 +29,6 @@
 * 4 cups cooked, day-old short grain rice
 * 1 cup frozen peas, thawed
 * 1/2 cup sliced scallions
-
-
-## Equipment needed: 
-* Nonstick skillet or wok
-* Tongs 
-
 
 ## Steps for preparation: 
 
@@ -57,6 +55,11 @@ Sauté the rice for another minute, then add in the peas, scrambled eggs and sli
 
 ## Time to cook: 
 3 1/2 - 4 hours
+
+## Equipment needed: 
+* Large pot or dutch oven
+* Blender
+* Rimmed baking sheet
 
 ## Ingredients 
 2 cups water
@@ -124,4 +127,5 @@ Enjoy!
 
 Wait 5 minutes before serving
 
-### Codemates # Ali Cailin Georgia Felipe
+### Codemates # 
+Ali Carley, Felipe Covarrubias, Georgia Wright-Simmons and Tai Wu
