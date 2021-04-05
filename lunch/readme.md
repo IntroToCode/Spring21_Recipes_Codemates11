@@ -1,8 +1,10 @@
 # Marcus Samuelsson's Pork Rib Fried Rice
 
-## Servings: 4-6 servings
+## Servings: 
+4-6 servings
 
-## Time to prepare: 20 minutes
+## Time to prepare: 
+20 minutes
 
 ## Ingredients:
 
@@ -46,6 +48,6 @@ Sauté the rice for another minute, then add in the peas, scrambled eggs and sli
 
 ### Notes:
 
-
+Recommendation: Wait 5 minutes before start eating, and allot 30 minutes after to digest before going back to work.
 
 ### Codemates # Ali Cailin Georgia Felipe
