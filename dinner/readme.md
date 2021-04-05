@@ -6,6 +6,12 @@
 ## Time to prepare: 
 1 Hour (15 minutes prep; 45 minutes cook time)
 
+## Equipment needed:
+* 1 oven 
+* 1 sheetpan or roasting pan,
+* 1 large bowl
+* 1 meat thermometer 
+
 ## Ingredients:
 * 1.5 pounds (680 grams) small potatoes, scrubbed and halved if large, 
 * 1⁄2 pound (226 grams) white mushrooms, wiped clean, trimmed and cut in half if large
@@ -16,12 +22,6 @@
 * 6 tablespoons (90 ml) extra-virgin olive oil 
 * 4 tablespoons balsamic vinegar
 * 4 whole chicken legs (thigh and drumstick), patted dry
-
-## Equipment needed:
-* 1 oven 
-* 1 sheetpan or roasting pan,
-* 1 large bowl
-* 1 meat thermometer 
 
 ## Steps for preparation:
 1. Put the potatoes, mushrooms, shallot or onion and garlic in a large bowl. 
