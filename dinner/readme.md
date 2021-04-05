@@ -1,26 +1,27 @@
 # Balsalmic Chicken Sheetpan Supper
 
 ## Servings: 
-4 Servings
+4 - 5 Servings
 
 ## Time to prepare: 
-1 Hour
-
-## Ingredients:
--1.5 pounds (680 grams) small potatoes, scrubbed and halved if large, 
--1⁄2 pound (226 grams) white mushrooms, wiped clean, trimmed and cut in half if large
--1 large shallot or medium onion, cut into 8 wedges, rinsed and patted dry
--4 garlic cloves, unpeeled
--8 sprigs fresh rosemary8 sprigs fresh thyme
--Fine sea salt and freshly ground pepper
--6 tablespoons (90 ml) extra-virgin olive oil 
--4 tablespoons balsamic vinegar
--4 whole chicken legs (thigh and drumstick), patted dry
+1 Hour (15 minutes prep; 45 minutes cook time)
 
 ## Equipment needed:
--1 oven, one sheetpan or roasting pan,
--1 large bowl
--1 meat thermometer 
+* 1 oven 
+* 1 sheetpan or roasting pan,
+* 1 large bowl
+* 1 meat thermometer 
+
+## Ingredients:
+* 1.5 pounds (680 grams) small potatoes, scrubbed and halved if large, 
+* 1⁄2 pound (226 grams) white mushrooms, wiped clean, trimmed and cut in half if large
+* 1 large shallot or medium onion, cut into 8 wedges, rinsed and patted dry
+* 4 garlic cloves, unpeeled
+* 8 sprigs fresh rosemary8 sprigs fresh thyme
+* Fine sea salt and freshly ground pepper
+* 6 tablespoons (90 ml) extra-virgin olive oil 
+* 4 tablespoons balsamic vinegar
+* 4 whole chicken legs (thigh and drumstick), patted dry
 
 ## Steps for preparation:
 1. Put the potatoes, mushrooms, shallot or onion and garlic in a large bowl. 
@@ -35,8 +36,13 @@
 
 
 ### Notes:
-The supper is best served straight from the oven, but leftovers are good for a couple of days; cover and refrigerate. If you’ve got a few potatoes left over, cut them into cubes and toss them into a salad.
+The supper is best served straight from the oven, but leftovers are good for a couple of days; cover and refrigerate. 
+
+If you’ve got a few potatoes left over, cut them into cubes and toss them into a salad.
+
 You can use bone in breasts if you would like to use chicken breast. 
+
+Be sure to allot 20 minutes as buffer time in case the chicken takes a bit longer to cook. 
 
 ### Codemates #
 Ali Carley, Felipe Covarrubias, Georgia Wright-Simmons and Tai Wu

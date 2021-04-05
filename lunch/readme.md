@@ -3,7 +3,7 @@
 ## Servings: 
 4-6 servings
 
-## Time to prepare: 
+## Time to prepare:
 20 minutes - 30 minutes
 
 ## Equipment needed: 
@@ -81,7 +81,6 @@ Sauté the rice for another minute, then add in the peas, scrambled eggs and sli
 
 
 **SAUCE**
-
 * 1 tablespoon canola oil
 * 1 poblano chile, chopped
 * 1 red onion, chopped
@@ -125,7 +124,8 @@ Enjoy!
 
 ### Notes:
 
-Wait 5 minutes before serving
+Recommendation: Wait 5 minutes before start eating, and allot 30 minutes after to digest before going back to work.
+
 
 ### Codemates # 
 Ali Carley, Felipe Covarrubias, Georgia Wright-Simmons and Tai Wu
